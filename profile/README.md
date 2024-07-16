@@ -1,6 +1,6 @@
 <div align="center"><em>Naeil Project</em></div>
 
-
+Capston_Naeil팀 발표자료_removed.pdf
 <br/><br/><br/>
 
 
