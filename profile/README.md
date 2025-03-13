@@ -1,3 +1,6 @@
+![Image](https://github.com/user-attachments/assets/f948992a-6b8c-4574-b579-b7dcbe0f99d2)
+
+
 <div align="center"><em>Naeil Project</em></div>
 
 Capston_Naeil팀 발표자료_removed.pdf
